@@ -1,4 +1,4 @@
-working on business commercial application
+working on business commercial applications
 telegram: @sub4ikgg
 
 <!---
