@@ -1,8 +1,4 @@
-Welcome to my GitHub!
-
-I will be glad to meet you and work on interesting projects.
-I can help you with Android apps!
-
+working on business commercial application
 telegram: @sub4ikgg
 
 <!---
