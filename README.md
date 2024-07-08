@@ -1,4 +1,4 @@
-working on business commercial applications and chatan.tech  
+working on business commercial applications and `chatan.tech`  
 telegram: [@sub4ikgg](https://t.me/sub4ikgg)
 
 ~ develop whatever you want  
