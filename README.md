@@ -1,8 +1,7 @@
-working on business commercial applications  
+working on business commercial applications and chatan.tech  
 telegram: [@sub4ikgg](https://t.me/sub4ikgg)
 
 ~ develop whatever you want  
-~ gitlab boy
 
 <!---
 Sub4ikGG/Sub4ikGG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
