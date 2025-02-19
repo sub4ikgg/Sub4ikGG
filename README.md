@@ -1,8 +1,7 @@
-working on business commercial applications and `chatan.tech`  
-telegram: [@sub4ikgg](https://t.me/sub4ikgg)
+working on business commercial software
 
-~ develop whatever you want  
-~ kotlin, android, fun
+telegram: [@sub4ikgg](https://t.me/sub4ikgg)  
+email: efremov@chatan.ru
 
 <!---
 Sub4ikGG/Sub4ikGG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
