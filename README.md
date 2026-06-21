@@ -1,4 +1,4 @@
-working on business commercial software
+mobile, iot
 
 telegram: [@sub4ikgg](https://t.me/sub4ikgg)  
 email: efremov@chatan.ru
